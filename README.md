@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Hexentic
+- 👀 I’m interested in art, minecraft, sports
+- 🌱 I’m currently learning how to figure out this dang app
+- 💞️ I’m looking to collaborate on anything!
+- 📫 How to reach me discord: pippyadog 
